@@ -17,7 +17,7 @@ Hispanic and African American youth ages 13 to 18 in Miami-Dade County.
 - Public health writing
 
 ## File Included
-- Fung-Kee-Fung MHYC Final(1).docx
+- Mental Health in Miami: Adolescent Suicide Study (Full Report)
 
 ## Author
 Vanessa Fung-Kee-Fung
